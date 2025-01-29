@@ -1,0 +1,1 @@
+En esta carpeta se encuentra los datos construidos para el reportaje [La espiral del desamparo: cuando la defensa pública le falla a las víctimas de violencia de género](https://ojo-publico.com/5468/la-espiral-del-desamparo-abogados-publicos-y-violencia-genero)
